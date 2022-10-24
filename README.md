@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Beezo030
+- 👀 I’m interested in reading, writing, music, and art!
+- 🌱 I’m currently learning HTML (coding wise) and a bunch of other non-code related work
